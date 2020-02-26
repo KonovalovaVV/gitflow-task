@@ -1,2 +1,6 @@
+## Laptop HP Pavilion 15-cs1001ur 5CT43EA
+
 ## Description
-15.6" 1920 x 1080 IPS, Intel Core i7 8565U 1800 лцЖ, 16 ца, HDD+SSD 1000+256 ца, GPU NVIDIA GeForce MX150 4 ца, Windows 10
+15.6" 1920 x 1080 IPS, Intel Core i7 8565U 1800 О©╫О©╫О©╫, 16 О©╫О©╫, HDD+SSD 1000+256 О©╫О©╫, GPU NVIDIA GeForce MX150 4 О©╫О©╫, Windows 10
+
+
