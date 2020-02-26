@@ -3,7 +3,7 @@
 >![](https://ssl-product-images.www8-hp.com/digmedialib/prodimg/lowres/c06321464.png
 )<br>
 
-
+rrrr
 [HP Spectre x360 Laptop - 13t touch](https://store.hp.com/us/en/pdp/hp-spectre-laptop-13t-4fj31av-1)
 >![](https://ssl-product-images.www8-hp.com/digmedialib/prodimg/lowres/c06145073.png)<br>
 
